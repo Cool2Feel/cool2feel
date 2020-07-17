@@ -22,6 +22,6 @@ Here are some ideas to get you started:
 
 😄 Hope that through the continuous sharing of Microsoft-related technology, Microsoft's technology in China to get more applications and recognition.
 
-💬 How to reach me:Dwesome7@outlook.com
+💬 How to reach me:cool2feel@outlook.com
 
 ⚡ You can follow my updates by visiting my blog or video site. [My Blog](https://www.cnblogs.com/cool2feel/)
