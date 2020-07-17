@@ -24,4 +24,4 @@ Here are some ideas to get you started:
 
 💬 How to reach me:Dwesome7@outlook.com
 
-zap You can follow my updates by visiting my blog or video site. [My Blog](https://www.cnblogs.com/cool2feel/)
+⚡ You can follow my updates by visiting my blog or video site. [My Blog](https://www.cnblogs.com/cool2feel/)
