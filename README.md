@@ -14,3 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+😄 Is an ordinary Microsoft fan.
+
+🌱 A regular C#-developer in the field of industrial manufacturing。
+
+🤔 Like to share blogs, video tutorials, source code
+
+😄 Hope that through the continuous sharing of Microsoft-related technology, Microsoft's technology in China to get more applications and recognition.
+
+💬 How to reach me:Dwesome7@outlook.com
+
+zap You can follow my updates by visiting my blog or video site. [My Blog](https://www.cnblogs.com/cool2feel/)
